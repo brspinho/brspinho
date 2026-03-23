@@ -2,6 +2,8 @@
 
 > **Project Director @ Innovation Hub (UFS)** | AI & Computer Vision Developer | Scrum Master
 
+[![Curriculum Vitæ](https://img.shields.io/badge/Acessar_Meu_Currículo-0077B5?style=for-the-badge&logo=googledrive&logoColor=white)](https://drive.google.com/file/d/17WvwRzDBSK4BKGDZRw3uEJcU6pzZc6DF/view?usp=sharing)
+
 ---
 
 ### 🏛️ Liderança & Gestão (Leadership & Management)
